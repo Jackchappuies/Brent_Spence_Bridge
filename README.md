@@ -7,4 +7,4 @@ Conscructed in 1963, this iconic bridge carries daily passengers to and from Cov
 *Brent Spence Bridge, Covington, KY*
 
 ![Screenshot of animation](animation.jpg)     
-*[Name of the link for video](https://www.youtube.com/watch?v=nFV8ftGN0aM)*
+*[The Brent Spence Bridge](https://youtu.be/TaPQr_nKkL4)*
